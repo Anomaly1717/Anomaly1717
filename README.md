@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Anomaly1717
+- 👀 I’m interested in music, videogames, and horror stories.
+- 🌱 I’m currently learning java.
+- 💞️ I’m looking to collaborate on indie video games.
+- 📫 How to reach me @ roakjoe@gmail.com
